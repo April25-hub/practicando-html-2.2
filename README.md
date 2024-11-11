@@ -12,6 +12,14 @@ Arzaba Diaz April 1173 3W
 ![image](https://github.com/user-attachments/assets/92bf23bc-ff4c-413a-8897-1c4549533f49)
 ![image](https://github.com/user-attachments/assets/0830b736-d9bb-412a-bf14-64d469a0a48e)
 # practicando html 5
+![image](https://github.com/user-attachments/assets/eb542461-6a67-498b-b174-e1a95e889737)
+![image](https://github.com/user-attachments/assets/167e764b-b583-4442-8853-c543158a9a77)
+# practicando html 6
+![image](https://github.com/user-attachments/assets/00ca221a-1e88-4c28-8e5d-df96e03a351a)
+![image](https://github.com/user-attachments/assets/42374cb0-1816-4425-b5c8-20e64352b70c)
+# practicando html 7
+
+
 
 
 
